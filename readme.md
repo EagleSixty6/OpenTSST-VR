@@ -1,4 +1,4 @@
-Will be published after validation (December/January 2020/2021)
+Will be published after validation
 
 UPDATE:
-Delayed due to COVID-19; the validation-study will begin in February
+Validation-Study in progress.
